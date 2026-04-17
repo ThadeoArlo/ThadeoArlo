@@ -1,2 +1,1 @@
-- [Deo.lol](https://deo.lol/).
-- [LinkedIn](https://www.linkedin.com/in/deoarlo/).
+Pressure is Privilege
